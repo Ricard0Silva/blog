@@ -15,6 +15,8 @@ ricardolealcontato@hotmail.com
 
 +55 91 992178958
 
+[Clique aqui para ir a pagina.](ricard0silva.github.io/blog/)
+
 
 Imagem do projeto blog.
 
